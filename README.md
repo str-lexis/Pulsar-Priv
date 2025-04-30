@@ -1,2 +1,1 @@
-# Pulsar-Priv
-Add Onto Pulsar
+niggas be in my bootyhole 💔
